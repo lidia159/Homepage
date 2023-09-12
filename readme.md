@@ -1,2 +1,1 @@
 Iniciando carreira
-primeiro passo
